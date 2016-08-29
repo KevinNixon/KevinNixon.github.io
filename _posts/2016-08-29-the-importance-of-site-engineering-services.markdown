@@ -13,6 +13,4 @@ The site engineers in London can also help you design a new home. A dream house 
 
 People therefore consult site engineers in London when they need to repair, restore and build structures of their choice. The services offered by them are absolutely professional in nature. Their expert advice help you get a strong basic structure for your home. It is however important for you to choose the best engineering services after reading the review and testimonials online. Choose engineers who have completed similar projects as this will mean that they have relevant experience. It is good to hire services who are known for their integrity and punctuality. They should be engineers who take pride in the quality of services they deliver and offer services which are good value for money. The site engineers in London usually use the most advanced instruments and tools for surveying and designing. A good reputed engineering service provider will also endeavor to build a good relationship with their clients based on trust, goodwill and excellent services. They will take up any project irrespective of its size and complete it is on schedule as per your requirements. 
 
-This source is referenced from http://articles.abilogic.com/141846/importance-site-engineering-services.html and shared by Olga Martin
-
-
+This source is referenced from http://articles.abilogic.com/141846/importance-site-engineering-services.html and shared by Olga Martin.
